@@ -1,4 +1,4 @@
-### My name is Nathan Towianski and I'm attempting the world a much better place.
+### I'm attempting to make the world a much better place.
 
 To do that I started [Amend](https://joinamend.com) with the idea that if we improve how to solve problem overall that we might be able to and more likely to make a big difference overall. I believe that every action or inaction is either making the world worse or better and I am hoping to come out net positive in a big way if I can.
 
